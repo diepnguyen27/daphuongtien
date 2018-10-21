@@ -1,2 +1,0 @@
-# daphuongtien
-baitaplon
